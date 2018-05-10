@@ -33,6 +33,14 @@ The basic questions are what, why, when, how much, and do you have any questions
 
 What
 
+The most important ‘what’ question is what does the candidate know about Esanjo? 
+
+Have they checked our website and read The Esanjo Way? Do they know what we do and what our projects are? Have they read the blog? Do they know anything about our history? All of these questions will be answered with that first one. We have a beautiful website that contains all of this information. Every job descriptions on our careers page not only contains a brief introduction to the company but also links to our website and The Esanjo Way. There is simply no excuse not to know anything. 
+
+If a candidate tells you that they didn’t have time to go online and check our website in detail, find out why. They may have a valid reason. For example, they may have applied while at work but didn’t have time to do any in-depth research and plan to do this later in the evening. Give them time and call them back.
+
+If a candidate didn’t even read the introduction though and/ or is continuously too busy, politely end the call. It only takes a few minutes to click on the link and read through our home page - so don’t waste time on people who don’t have time for us.
+
 We ask the candidate to give us a brief history of their career and what kind of work they’ve been doing so far. This allows us to assess communication skills, consistency of information (compared to their CVs and other comments they make), confidence, and their own knowledge of their skills and the jobs they’ve been doing so far. 
 
 Look out for what they focus on and how. A candidate who mumbles through their CV is not a strong candidate. A candidate who ties their experience and skill into our job’s requirements is. 
@@ -60,6 +68,11 @@ This is a very important question. We need a clear idea of a candidate’s expec
 Even candidates with absolutely no work experience should have some idea of how much the job pays when they apply. If nothing else they should at least know how much they need to survive.
 
 We do not reveal our remuneration scales or budgets to candidates. The purpose of this question is not to negotiate but to find out exactly how much the candidate really wants. It also lets us know how the candidates value themselves given their skills, training and experience. 
+
+The amount we are looking for is the amount that the candidate wants to take home at the end of the month. Esanjo offers a consultancy contract and a fee in USD. There are no additions and no deductions to the amount offered. It is important that candidates are aware of this before they answer. Some locations split remuneration into various allowances and incentives, as in Sri Lanka for example. Don’t forget to explain our contract.
+
+Find out how much candidates presently get. Again it helps us understand how they value themselves; present remuneration vs. expectation.
+
 
 Remote working experience
 
